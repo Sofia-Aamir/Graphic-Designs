@@ -1,3 +1,11 @@
+6th Logo Challenge:
+Logo Prompt:
+Coffee shop
+name ideas:
+Dylan's Coffee, The Roasted Bean, Tazza
+
+![TAZZA](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/feff863e-3aa4-43a6-b1d9-35d00937235a)
+
 2nd daily Logo Challenge:
 Logo Prompt:
 Hot Air Balloon
