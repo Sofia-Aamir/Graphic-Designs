@@ -1,7 +1,21 @@
+7th Daily Logo Challenge:
+
+Today's Prompt: Fashion Brand Wordmark
+
+Name Ideas: OAKAO, Deities, Adams & Abigail
+
+If you are new to identity design, a wordmark just means the logo uses only modified typography. This means there is no "logomark" just a "logotype".
+
+![DIETIES (2)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/c2664e11-f2ad-48f8-933c-eb5773cdbd6f)
+
 6th Logo Challenge:
+
 Logo Prompt:
+
 Coffee shop
+
 name ideas:
+
 Dylan's Coffee, The Roasted Bean, Tazza
 
 ![TAZZA](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/feff863e-3aa4-43a6-b1d9-35d00937235a)
