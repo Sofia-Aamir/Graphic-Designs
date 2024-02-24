@@ -1,3 +1,13 @@
+8th Daily Logo Challenge:
+
+Logo Prompt:
+Ski mountain logo,
+
+Name Ideas:
+Brass Peak, Mount Blanco, Traverse, Snowdrop  
+
+![all brass peak logos (1)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/2fb05da5-fec7-45b5-99e7-1f4ae79a0577)
+
 7th Daily Logo Challenge:
 
 Today's Prompt: Fashion Brand Wordmark
