@@ -1,3 +1,13 @@
+9th Daily Logo Challenge:
+
+Logo Prompt:
+Streaming Music Startup
+
+Name Ideas:
+Beat, Pitch, Bass
+
+![all music logos](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/b3cd6b53-1840-42d4-b39f-29db41266b80)
+
 8th Daily Logo Challenge:
 
 Logo Prompt:
