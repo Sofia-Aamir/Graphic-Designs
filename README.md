@@ -1,3 +1,5 @@
+![ALOHA](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/468cd614-6e1a-4542-82ed-59e79722bada)
+
 9th Daily Logo Challenge:
 
 Logo Prompt:
