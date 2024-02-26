@@ -1,3 +1,5 @@
+![sunday](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/be1b0599-3784-4b71-9065-674efd3af0f5)
+
 ![delicious](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/4891cd15-7ca8-42af-950a-9e68eefa5f19)
 
 10th Daily Logo Challenge:
