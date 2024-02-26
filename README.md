@@ -1,3 +1,10 @@
+10th Daily Logo Challenge:
+
+Here is today's challenge: Flame Logo
+Name Ideas: Sizzle, Liight (or Light), Flint & Flame
+
+![all flame logos](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/16f48bff-caf5-45f1-80a0-ce0343fe6fb9)
+
 ![ALOHA](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/468cd614-6e1a-4542-82ed-59e79722bada)
 
 9th Daily Logo Challenge:
