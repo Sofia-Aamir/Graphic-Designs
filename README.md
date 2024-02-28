@@ -1,3 +1,5 @@
+![inspired (1)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/9844d644-5a53-43d9-a3d1-47a1fb2fe419)
+
 ![ice cream (2)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/c9f692b5-3626-4190-90f8-f36621133fd3)
 
 ![Donuts](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/7ba1b71d-0e15-4a6b-afb5-e12ee45f3f61)
