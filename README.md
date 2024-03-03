@@ -1,3 +1,5 @@
+![Party](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/9eac4b74-8ad4-443b-96e0-f2a346af286b)
+
 ![man in sunset](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/2ecd3c99-3aa3-453b-a74e-fa9df238d14f)
 
 ![inspired (1)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/9844d644-5a53-43d9-a3d1-47a1fb2fe419)
