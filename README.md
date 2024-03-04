@@ -1,3 +1,7 @@
+![Tropicana](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/f12ddcaa-e7fa-49ce-90c2-2dc1ea1fe9fc)
+
+![LIFE IS](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/9926e9b5-466c-4e2b-b9f6-dbbe9eecd142)
+
 ![Party](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/9eac4b74-8ad4-443b-96e0-f2a346af286b)
 
 ![man in sunset](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/2ecd3c99-3aa3-453b-a74e-fa9df238d14f)
