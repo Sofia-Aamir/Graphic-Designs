@@ -1,3 +1,11 @@
+![fashion](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/68b4c8c9-d183-41a0-a7ea-2ad6d55ed607)
+
+![fashion week red](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/02d4d92e-14b4-4e63-ae65-a54a2df7daba)
+
+![fashion show emma](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/5208789a-f492-4342-b729-88dbd47a4ff4)
+
+![black fashion event](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/05116d6f-9754-4f18-807c-5969bf2e3859)
+
 ![coffee flayer (1)](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/78ee8f5e-2b03-4745-983c-468447e95550)
 
 ![Tropicana](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/f12ddcaa-e7fa-49ce-90c2-2dc1ea1fe9fc)
