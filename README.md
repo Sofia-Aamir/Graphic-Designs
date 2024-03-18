@@ -1,3 +1,7 @@
+![medimix social media post](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/69e1957d-dc20-4a8e-9b79-53377c169150)
+
+![MEDICAL CARE](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/dadf1a00-946f-4d6e-8330-bda3a1493ac8)
+
 ![fashion](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/68b4c8c9-d183-41a0-a7ea-2ad6d55ed607)
 
 ![fashion week red](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/02d4d92e-14b4-4e63-ae65-a54a2df7daba)
