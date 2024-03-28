@@ -1,6 +1,6 @@
 ![creativity](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/e777d36c-341e-4533-b969-033cecfa8b41)
 
-![Uploading social media post.png…]()
+![social media post](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/673f48d1-01e5-4e03-9625-3e71ba60ee72)
 
 ![medimix social media post](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/69e1957d-dc20-4a8e-9b79-53377c169150)
 
