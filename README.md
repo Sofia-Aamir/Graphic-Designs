@@ -1,3 +1,7 @@
+![creativity](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/e777d36c-341e-4533-b969-033cecfa8b41)
+
+![Uploading social media post.png…]()
+
 ![medimix social media post](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/69e1957d-dc20-4a8e-9b79-53377c169150)
 
 ![MEDICAL CARE](https://github.com/Sofia-Aamir/Graphic-Designs/assets/129897330/dadf1a00-946f-4d6e-8330-bda3a1493ac8)
